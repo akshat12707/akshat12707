@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Git hub
 - 📫 How to reach me- akshat.khyati127@gamil.com
 - 😄 Pronouns: Call me Just akshat
-- ⚡ Fun fact: I am A human  
+- ⚡ Fun fact: I am a human not animal like you....
 
 <!---
 akshat12707/akshat12707 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
